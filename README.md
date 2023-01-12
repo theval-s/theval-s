@@ -1,6 +1,6 @@
 Hello there! I'm Val, 18 y.o. , currently studying in ITMO University.
 
-I probably want to be a game developer in the future, I really love game studies.\
+I probably want to be a game developer in the future, I really love game studies.
 
 You can easily contact me in Telegram - @thevals
 
